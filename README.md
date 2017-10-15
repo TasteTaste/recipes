@@ -1,2 +1,2 @@
-# recipes
-Tasty recipes and the miscellany around them
+# TasteTaste Recipes
+Tasty recipes and the miscellany around them.
