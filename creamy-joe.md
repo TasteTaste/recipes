@@ -4,7 +4,7 @@ Ingredient list:
 
 - 1 cup mayo
 - 1 cup buttermilk
-- 1 packet of Hidden Valley Ranch Buttermilk Recipe
+- 1 packet of Hidden Valley Ranch Buttermilk Recipe (or reference your own ranch dressing recipe)
 - 1 jar pickled sliced jalapenos
 - 1 bunch fresh cilantro
 - 1 small can chipotles in adobo
