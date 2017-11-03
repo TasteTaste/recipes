@@ -1,6 +1,6 @@
 This recipe is based on Creamy Jalapeno dip from Chuy's Comida Deluxe.
 
-Ingredient list:
+## Ingredient list:
 
 - 1 cup mayo
 - 1 cup buttermilk
