@@ -33,7 +33,7 @@ Almost always halve this recipe, but keeping in full for the below.
 
 ## Steps
 
-1. Preheat oven to 300°F. Pour chicken stock into a medium bowl and sprinkle gelatin evenly all over surface, allowing each packet's worth of gelatin to soak up stock before sprinkling next one on. Set aside.
+1. Preheat oven to 290°F. Pour chicken stock into a medium bowl and sprinkle gelatin evenly all over surface, allowing each packet's worth of gelatin to soak up stock before sprinkling next one on. Set aside.
 
 2. In a large Dutch oven, heat oil over medium-high heat until shimmering. Season beef all over with salt and pepper and add to Dutch oven. Cook, turning occasionally, until beef is well browned on 2 sides, about 10 minutes. Transfer beef to a rimmed baking sheet.
 
