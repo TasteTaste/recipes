@@ -10,19 +10,19 @@ Velveeta and Rotel never tastes as good as imagined, but "real" queso also shoul
 - 1/2 tsp of cornstarch 
 
 ### Mix and Match
-- 1 poblano chili, charred and skin removed
+- 1 poblano chili, charred and skin removed, diced
 - 1 chipotle chili in adobo, rinsed, seeded, and diced
 - 1/2 tsp of adobo sauce
 - Garlic, minced
-- Cilantro
+- Fresh cilantro, minced
 
 ## Steps
-If using chilies/garlic heat a bit of oil and saute until fragrant. 
+If using chiles/garlic heat a bit of oil and saute until fragrant. 
 Dice cheese and toss in cornstarch until evenly dusted.
 Pour in half of evaporated milk and heat until simmering.
-Reduce heat and add cheese, leaving any extra cornstarch behind.
+Reduce heat and gradually add cheese, leaving any extra cornstarch behind.
 Whisk until melted, keeping it at a simmer or below.
-Add evaporated milk as needed for desired consistency, amount depends on water content of chilies and chese. 
+Add evaporated milk as needed for desired consistency, amount depends on water content of chilies and cheese. 
 Top with cilantro and serve with tortilla chips. 
 Best if served in pot or preheated bowl. 
 If serving for a party some form of crock pot is needed as it will solidify as it cools. 
