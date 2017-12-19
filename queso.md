@@ -1,6 +1,6 @@
 ## Queso (and varieties)
 
-Velveeta and Rotel never tastes as good as imagined, but "real" queso also should't try too hard to be "real" cheese. The point here is a creamy, emulsified cheese dip that can take all kinds of mixins depending on the mood. The base is built using evaporated milk, american cheese, and touch of cornstarch ([for the reasons](http://aht.seriouseats.com/2010/09/the-burger-lab-cheese-sauce-for-burgers-fries-and-chips.html)).
+Velveeta and Rotel never tastes as good as imagined, but "real" queso also shouldn't try too hard to be "real" cheese. The point here is a creamy, emulsified cheese dip that can take all kinds of mixins depending on the mood. The base is built using evaporated milk, american cheese, and touch of cornstarch ([for the reasons](http://aht.seriouseats.com/2010/09/the-burger-lab-cheese-sauce-for-burgers-fries-and-chips.html)).
 
 ## Ingredients
 
