@@ -32,6 +32,8 @@ optionally, add vodka (1/4c per quart, this recipe is about 2 quarts = 1/2c vodk
 
 add 2 tsp (teaspoon!) fish sauce, 1 tsp soy sauce, 1 tsp worchestershire sauce, parsley and basil from above, salt and pepper to taste, additional olive oil to taste
 
+31 dec 2017: made w/2 cups unsalted chicken stock, oven started at 275, put in oven at 10:20 am
+
 return to oven for 10-15 minutes
 
 Complete!
