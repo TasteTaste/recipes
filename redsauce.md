@@ -1,3 +1,7 @@
+To do:
+Try adding sage
+Make ingredient list at top
+
 Obtain 4 28oz cans of certified DOP San Marzano whole peeled tomatoes
 .. background here:
 http://slice.seriouseats.com/archives/2010/12/what-is-a-dop-italian-san-marzano-canned-tomato.html
