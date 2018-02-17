@@ -1,6 +1,6 @@
-To do:
-Try adding sage
-Make ingredient list at top
+#To do:
+-Try adding sage
+-Make ingredient list at top
 
 Obtain 4 28oz cans of certified DOP San Marzano whole peeled tomatoes
 .. background here:
