@@ -1,12 +1,10 @@
-#To do:
--Try adding sage
--Make ingredient list at top
+#### To do:
+- Try adding sage
+- Make ingredient list at top
 
-Obtain 4 28oz cans of certified DOP San Marzano whole peeled tomatoes
-.. background here:
-http://slice.seriouseats.com/archives/2010/12/what-is-a-dop-italian-san-marzano-canned-tomato.html
+- Obtain 4 28oz cans of certified DOP San Marzano whole peeled tomatoes (background here: http://slice.seriouseats.com/archives/2010/12/what-is-a-dop-italian-san-marzano-canned-tomato.html )
 
-hand smash 3 of those cans of tomatoes, removing basil chunks
+- hand smash 3 of those cans of tomatoes, removing basil chunks
 
 melt 1/4 cup extra-virgin olive oil and 4 tablespoons butter in a large dutch oven over medium heat
 
