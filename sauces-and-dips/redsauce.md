@@ -12,7 +12,7 @@ melt 1/4 cup extra-virgin olive oil and 4 tablespoons butter in a large dutch ov
 
 add 8 cloves minced garlic and 1 thin sliced shallot, stir until soft and fragrant (2 mins)
 
-add 1/2 tbsp hot paprika, 1 tbsp dried oregano, and 1 tbsp fresh cracked black pepper, stir until fragrant (1 min)
+add 1 tsp (1/2 tbsp was a bit too much) hot paprika, 1 tbsp dried oregano, and 1 tbsp fresh cracked black pepper, stir until fragrant (1 min)
 
 preheat oven to 275-300
 
