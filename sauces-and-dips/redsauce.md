@@ -1,4 +1,5 @@
 #### To do:
+- Add 1/4 tsp baking soda to reduce acidity
 - Try adding sage
 - Make ingredient list at top
 
@@ -12,7 +13,7 @@
 
 - add 8 cloves minced garlic and 1 thin sliced shallot, stir until soft and fragrant (2 mins)
 
-- add 1 tsp (1/2 tbsp was a bit too much) hot paprika, 1 tbsp dried oregano, and 1 tbsp fresh cracked black pepper, stir until fragrant (1 min)
+- add 1/2 tsp (1 tsp was a bit too much, and before that 1 tbsp was way too much) hot paprika, 1 tbsp dried oregano, and 1 tbsp fresh cracked black pepper, stir until fragrant (1 min)
 
 - preheat oven to 275-300
 
