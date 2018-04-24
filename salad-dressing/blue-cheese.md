@@ -1,6 +1,6 @@
 ## Blue Cheese Dressing
 
-The key here is to use a good blue cheese, have most enjoyed Bleu d'Auvergne. It is nice and creamy while still having a strong blue cheese flavor. This is a fairly thick dressing originally called a [dip](https://www.seriouseats.com/recipes/2010/02/blue-cheese-dip-sauce-recipe.html).
+The key here is to use a good blue cheese, have most enjoyed [Bleu d'Auvergne](https://en.m.wikipedia.org/wiki/Bleu_d%27Auvergne). It is nice and creamy while still having a strong blue cheese flavor. This is a fairly thick dressing originally called a [dip](https://www.seriouseats.com/recipes/2010/02/blue-cheese-dip-sauce-recipe.html).
 
 ## Ingredients
 
