@@ -6,3 +6,4 @@ Tasty recipes and the miscellany around them.
 * Pulled pork 
 * Pastelon
 * Meatloaf
+* Pork chops with thyme, shallot, butter
