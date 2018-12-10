@@ -7,3 +7,4 @@ Tasty recipes and the miscellany around them.
 * Pastelon
 * Meatloaf
 * Pork chops with thyme, shallot, butter
+* Polenta
