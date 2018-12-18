@@ -8,3 +8,4 @@ Tasty recipes and the miscellany around them.
 * Meatloaf
 * Pork chops with thyme, shallot, butter
 * Polenta
+* Bacon and bourbon marmalade
