@@ -13,11 +13,13 @@
 
 - add 8 cloves minced garlic and 1 thin sliced shallot, stir until soft and fragrant (2 mins)
 
-- add 1/2 tsp (1 tsp was a bit too much, and before that 1 tbsp was way too much) hot paprika, 1 tbsp dried oregano, and 1 tbsp fresh cracked black pepper, stir until fragrant (1 min)
+- optionally add up to 1/2 tsp hot paprika - any more will be too hot for most uses, and heat can always be added later
+
+- add 1 tbsp dried oregano and 1 tbsp fresh cracked black pepper, stir until fragrant (1 min)
 
 - preheat oven to 275-300
 
-- add (3 cans hand smashed) tomatoes, 1 or 2 whole peeled carrots chopped into large chunks, half a peeled white onion, one big sprig of fresh basil, 1c low/no salt chicken stock (optional)
+- add (3 cans hand smashed) tomatoes, 1 or 2 whole peeled carrots chopped into large chunks, half a peeled white onion, one big sprig of fresh basil, and optionally 1c low/no salt chicken stock
 
 - bring to simmer over high heat
 
@@ -41,6 +43,7 @@
 
 Complete!
 
-At this point I measure out 1-cup portions of sauce into tupperware to put into the freezer. Generally get 7 or 8 cups. If you have a really huge dutch oven you might be able to 1.5x or 2x the recipe.
+At this point I measure out 1-cup portions of sauce into ziploc bags to put into the freezer. Generally get 7 or 8 cups. If you have a really huge dutch oven you might be able to 1.5x or 2x the recipe.
 
+10 nov 2018: made w/5 cans tomatoes, 1 cup chicken stock, 1/2 tsp hot paprika. Turned out very well, suggest removing hot paprika entirely. Opinion is this is the best version so far, possibly resulting from additional cooking time required by extra can of tomatoes.
 31 dec 2017: made w/2 cups unsalted chicken stock, oven at 280, put in oven at 10:20 am
