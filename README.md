@@ -7,3 +7,6 @@ Tasty recipes and the miscellany around them.
 * Meatloaf
 * Pork chops with thyme, shallot, butter
 * Polenta
+* Fajitas
+* Guac
+* Pico
