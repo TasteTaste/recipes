@@ -45,6 +45,9 @@ Complete!
 
 At this point I measure out 1-cup portions of sauce into ziploc bags to put into the freezer. Generally get 7 or 8 cups. If you have a really huge dutch oven you might be able to 1.5x or 2x the recipe.
 
+31 mar 2019: doubled the recipe, used bigger allclad pot. Higher oven temp of 300 seemed required at the beginning. Eventually lowered temp to 270. Cook time is at least 12 hours.
+
+
 10 nov 2018: made w/5 cans tomatoes, 1 cup chicken stock, 1/2 tsp hot paprika. Turned out very well, suggest removing hot paprika entirely. Opinion is this is the best version so far, possibly resulting from additional cooking time required by extra can of tomatoes.
 
 31 dec 2017: made w/2 cups unsalted chicken stock, oven at 280, put in oven at 10:20 am
