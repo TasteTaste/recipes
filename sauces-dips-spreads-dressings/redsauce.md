@@ -5,19 +5,19 @@
 
 #### Ingredients (for doubling the recipe)
 
-1.5 90 oz cans tomatoes
-1/2 cup olive oil
-8 Tbsp butter
-16 cloves of garlic
-2 shallots
-2 Tbsp dried oregano
-2 Tbsp black pepper
-2-4 carrots
-1 white onion
-1 or 2 big sprigs of basil
-2 cups chicken stock
-1 cup fresh parsley
-1 cup fresh basil
+- 1.5 90 oz cans tomatoes
+- 1/2 cup olive oil
+- 8 Tbsp butter
+- 16 cloves of garlic
+- 2 shallots
+- 2 Tbsp dried oregano
+- 2 Tbsp black pepper
+- 2-4 carrots
+- 1 white onion
+- 1 or 2 big sprigs of basil
+- 2 cups chicken stock
+- 1 cup fresh parsley
+- 1 cup fresh basil
 
 #### The recipe:
 
