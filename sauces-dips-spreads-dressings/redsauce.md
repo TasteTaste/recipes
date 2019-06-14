@@ -1,5 +1,5 @@
 #### To do:
-- Add 1/4 tsp baking soda to reduce acidity
+
 - Try adding sage
 - Make ingredient list at top
 
