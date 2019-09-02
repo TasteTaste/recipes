@@ -10,3 +10,8 @@ Tasty recipes and the miscellany around them.
 * Fajitas
 * Guac
 * Pico
+* Chicago dogs
+* Nachos
+* Gnocchi
+* Cheesesteak
+* Chicken Caesar salad
