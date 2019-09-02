@@ -15,3 +15,4 @@ Tasty recipes and the miscellany around them.
 * Gnocchi
 * Cheesesteak
 * Chicken Caesar salad
+* Pizza
