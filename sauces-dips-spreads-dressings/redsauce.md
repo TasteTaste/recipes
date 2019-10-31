@@ -61,6 +61,8 @@ Complete!
 
 At this point I measure out 1-cup portions of sauce into ziploc bags to put into the freezer. Generally get 7 or 8 cups. If you have a really huge dutch oven you might be able to 1.5x or 2x the recipe.
 
+31 oct 2019: doubled recipe as before. Drained the "fresh" portion of tomatoes added at the end. Started oven at 300 and gradually reduced to 270. Cook time about 15 hours. Yield a little over 14 cups.
+
 31 mar 2019: doubled the recipe, used bigger allclad pot. Higher oven temp of 300 seemed required at the beginning. Eventually lowered temp to 270. Cook time is at least 12 hours.
 
 
