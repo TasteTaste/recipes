@@ -11,7 +11,6 @@ Tasty recipes and the miscellany around them.
 * Chicago dogs
 * Nachos
 * Gnocchi
-* Cheesesteak
 * Chicken Caesar salad
 * Pizza
 * Crustless quiches
