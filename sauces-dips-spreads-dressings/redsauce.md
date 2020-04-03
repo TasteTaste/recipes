@@ -69,3 +69,5 @@ At this point I measure out 1-cup portions of sauce into ziploc bags to put into
 10 nov 2018: made w/5 cans tomatoes, 1 cup chicken stock, 1/2 tsp hot paprika. Turned out very well, suggest removing hot paprika entirely. Opinion is this is the best version so far, possibly resulting from additional cooking time required by extra can of tomatoes.
 
 31 dec 2017: made w/2 cups unsalted chicken stock, oven at 280, put in oven at 10:20 am
+
+Taken from: https://www.seriouseats.com/recipes/2014/09/the-best-slow-cooked-italian-american-tomato-sauce-red-sauce-recipe.html
