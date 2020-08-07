@@ -6,9 +6,9 @@ Ingredient list:
 - 1 cup buttermilk
 - 1 packet of Hidden Valley Ranch Buttermilk Recipe (or reference your own ranch dressing recipe)
 - 1 jar pickled sliced jalapenos
-- 1 bunch fresh cilantro
+- 1/2 bunch fresh cilantro
 - 1 small can chipotles in adobo
-- 2 tbsp aji amarillo paste
+- 2 tbsp aji amarillo paste (optional)
 - 1 tsp lime juice
 - 1/4 tsp arbol chile oil (as required)
 
@@ -25,4 +25,4 @@ Procedure:
 9. Adjust heat level with arbol oil, with caution
 10. Chill in refrigerator to allow flavors to marry. 12-24 hours works best. The dip will get significantly hotter after 24 hours, and gradually hotter over the next few days.
 
-Dip will keep for about 2 weeks
+Dip will keep for a few weeks
