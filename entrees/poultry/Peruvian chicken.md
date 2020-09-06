@@ -32,3 +32,5 @@
 5. Place chicken, skin side up, on cooler side of grill, with legs facing toward hotter side. Cover grill, with vents on lid open and aligned over chicken. Open bottom vents of grill. Cook until an instant-read thermometer inserted into thickest part of breast registers 110°F. Carefully flip chicken and place, skin side down, on hotter side of grill, with breasts pointed toward cooler side. Press down firmly with a wide, stiff spatula to ensure good contact between bird and grill grates. Cover and cook until skin is crisp and an instant-read thermometer inserted into thickest part of breast registers 145 to 150°F, about 10 minutes longer. If chicken threatens to burn before temperature is achieved, carefully slide to cooler side of grill, cover, and continue to cook until done. Do not leave the lid off for longer than it takes to check temperature, or chicken will burn.
 
 6. Transfer chicken to a cutting board and allow to rest for 5 to 10 minutes. Carve and serve with sauce.
+
+[Meatwave version](https://meatwave.com/recipes/peruvian-rotisserie-chicken-with-green-sauce-recipe-pollo-a-la-brasa-con-aji-verde)
