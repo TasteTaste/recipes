@@ -12,3 +12,5 @@ Sour cream
 Fried onions
 
 Chicken marinade: lime juice, olive oil, salt, cilantro, chipotle powder, black pepper, 30-60 minutes
+
+Green chile rice: https://iamnm.com/new-mexico-green-chile-rice-pilaf/
