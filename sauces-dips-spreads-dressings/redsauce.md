@@ -70,7 +70,7 @@ At this point I measure out 1-cup portions of sauce into ziploc bags to put into
 
 31 dec 2017: made w/2 cups unsalted chicken stock, oven at 280, put in oven at 10:20 am
 
-Taken from, pasted below: https://www.seriouseats.com/recipes/2014/09/the-best-slow-cooked-italian-american-tomato-sauce-red-sauce-recipe.html
+### Taken from, pasted below: https://www.seriouseats.com/recipes/2014/09/the-best-slow-cooked-italian-american-tomato-sauce-red-sauce-recipe.html
 
 	
 The Best Slow-Cooked Tomato Sauce Recipe
