@@ -1,9 +1,9 @@
-#### To do:
+### To do:
 
 - Try adding sage
 - Make ingredient list at top
 
-#### Ingredients (for doubling the recipe)
+### Ingredients (for doubling the recipe)
 
 - 1.5 90 oz cans tomatoes
 - 1/2 cup olive oil
@@ -19,7 +19,7 @@
 - 1 cup fresh parsley
 - 1 cup fresh basil
 
-#### The recipe:
+### The recipe:
 
 - Obtain 4 28oz cans of certified DOP San Marzano whole peeled tomatoes (background here: http://slice.seriouseats.com/archives/2010/12/what-is-a-dop-italian-san-marzano-canned-tomato.html )
 
@@ -70,7 +70,7 @@ At this point I measure out 1-cup portions of sauce into ziploc bags to put into
 
 31 dec 2017: made w/2 cups unsalted chicken stock, oven at 280, put in oven at 10:20 am
 
-### Taken from, pasted below: https://www.seriouseats.com/recipes/2014/09/the-best-slow-cooked-italian-american-tomato-sauce-red-sauce-recipe.html
+#### Taken from, pasted below: https://www.seriouseats.com/recipes/2014/09/the-best-slow-cooked-italian-american-tomato-sauce-red-sauce-recipe.html
 
 	
 The Best Slow-Cooked Tomato Sauce Recipe
