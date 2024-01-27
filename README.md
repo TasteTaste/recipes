@@ -5,7 +5,6 @@ Tasty recipes and the miscellany around them.
 * Tamale Pie
 * Sausage Stroganoff
 * Lasagna
-* Butter Chicken
 * Pastelon
 * Meatloaf
 * Polenta
